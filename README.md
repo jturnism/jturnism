@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jturnism
+- 👀 Find out more about me josephturner.xyz
